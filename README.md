@@ -1,1 +1,1 @@
-# chào mọi người tui là newbie
+# chào mọi người tui là newbie :)
