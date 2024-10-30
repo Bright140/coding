@@ -1,1 +1,1 @@
-# chào mọi người tui là newbie :)
+# This is  my study section 
